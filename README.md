@@ -1,2 +1,4 @@
-Bem vindos ao melhor perfil do GitHub :Double Exclamation Mark:
-Jogador de vôlei Levantador (melhor posição) :Mending Heart:
+Bem vindos ao melhor perfil do GitHub!!!!
+Jogador de vôlei Levantador (melhor posição) ❤️‍🩹🏐
+![](https://media1.tenor.com/m/l2jatOAeMtAAAAAC/haikyuu-hinata.gif)
+![](https://media1.tenor.com/m/TkqjuWqmNycAAAAC/kuroo-bokuto.gif)
